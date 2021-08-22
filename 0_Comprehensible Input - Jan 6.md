@@ -1,0 +1,17 @@
+Comprehensible Input - Jan 6
+
+Good morning learners. If you haven’t read the pinned posts I recommend you start there.
+
+Today I want to address the term “Comprehensible Input”. Comprehensible Input is audio or written text that can be understood by the learner. It’s usually at, or slightly above, the learners current ability. Why is this type of media so important? Firstly, we gain practice reading and understanding our target language. Secondly, and most importantly,  we grow our ability organically through context.
+
+We all come across words in English we don’t know, how often do we need to consult a dictionary to their meaning? Very rarely I would assume. We as humans are very good at inferring meaning through context. We can use this to our benefit while learning a language. If the text or audio contains mainly review of what we know, but there are a few grammatical structures or words we don’t understand we can infer and impart meaning to these things within context without much conscious effort! We learn these new words and phrases organically. Words and phrases learned this way are powerful as they themselves have links to the other ideas present in the text or audio. This helps solidify this new knowledge in memory as connections are extremely important to memorization.
+
+As you progress in your language learning journey you will discover that these most valuable form of content is often the hardest to find. Either the content is too hard, too easy, too boring, or too abstract. Finding comprehensible input for you at your current level can require a lot of sleuthing, especially if you are deciding to learn a more obscure language or dialect.
+
+My surefire way to find comprehensible input that is both relatable, engaging, and personally useful to me is to make my own! I recommend this technique to anyone who is at a level where they can create their own sentences even if they are simple ones. Write about you, write about what you are passionate about, write about your day. Then, get a native speaker to correct your writing. https://lang-8.com/ is free and is great for when you are a beginner or intermediate in your language and is akin to a language exchange. Another option is to pay for a copy writer on https://www.fiverr.com/. This has the benefit of them, well, doing professional work, as well as them making a conscious effort to change things to sound more natural and native.
+
+After you have your corrected writing, you hold in your hands a personalized engaging writ of knowledge to dive into. Compare it your original text. Find places where you could sound more natural, made grammatical errors, and definitely pick out any word you don’t know and memorize that.
+
+If you want to go a step further you can get a voice actor to read your corrected script on https://www.fiverr.com/ and practice talking about things your love, about yourself and your life and your hobbies, while practicing accent, intonation, and pronunciation! (https://translate.google.com/ is a fairly reliable option for checking pronunciation of full paragraphs if you don’t want to spend the money, but I highly suggest not using as your sole source of truth).
+
+I hope this gives you ideas on how to generate your own comprehensible input. Where do you find your comprehensible input? Podcasts for beginners? News sites recited slowly? Children’s books? Let me know!
